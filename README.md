@@ -1,4 +1,4 @@
-HOW TF DOES THIS WORK OMFG, SOS
+HOW TF DOES THIS WORK, send help..
 
 <p align="center"
 
