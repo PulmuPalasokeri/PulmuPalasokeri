@@ -14,4 +14,4 @@ _____
 
 im too lazy to do shit to this :)), have a great day yall
 
-theres way more stuff in my straw1 + more abt my fandoms and shit ^v^
+theres way more stuff in my straw1 + more abt my interests and shit ^v^
