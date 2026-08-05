@@ -10,6 +10,8 @@ _____
 
 <p align="center"
  
-[ata](https://pulmumoo.atabook.org/) - [straw2](https://0llipulm.straw.page)
+[ata](https://pulmumoo.atabook.org/) - [straw1](https://palasokeri.straw.page/) - [straw2](https://0llipulm.straw.page)
 
 im too lazy to do shit to this :)), have a great day yall
+
+theres way more stuff in my straw1 + more abt my fandoms and shit ^v^
