@@ -18,7 +18,8 @@
 
 theres way more stuff in my straw1 + more abt my interests and shit ^v^
 
-i do all this shit on my phone + ass of a laptop wchich runs on fumes
+i do all this shit on my phone + ass of a laptop wchich runs on fumes <img width="20" height="20" alt="tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75" src="https://github.com/user-attachments/assets/79ef92fd-c795-44ab-8f25-f3209634a7ea" />
+
 
 
 # <p align="center"> <img width="20" height="20" alt="tumblr_2023fffcc35d99c41b988de930f9b185_175c14c6_75" src="https://github.com/user-attachments/assets/2b86aea8-91b6-409e-863e-6bb497294ed9" /> $${\color{gray}LINKS}$$
