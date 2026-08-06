@@ -1,3 +1,5 @@
+***
+
 <p align="center"> <img width="1111" height="74" alt="am2tyu" src="https://github.com/user-attachments/assets/ed03c9e0-f7b9-41a3-ab61-6837129e60ab" />
 
 
@@ -31,3 +33,5 @@ i do all this shit on my phone + ass of a laptop wchich runs on fumes <img width
 
 
 <p align="center"> <img width="1111" height="74" alt="0z3da4" src="https://github.com/user-attachments/assets/63dbc36a-252c-4e33-94d8-c8398bf415b4" />
+
+***
