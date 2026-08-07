@@ -11,7 +11,7 @@
 <p align="center"> <img width="150" height="150" alt="prompto" src="https://github.com/user-attachments/assets/ecebad6c-d702-4a69-904f-2d28d2f65e2e" />
 
 
-# <p align="center"> <img width="20" height="20" alt="tumblr_e4ece501a8af46f917f15b31407f9fb8_da475fa4_75" src="https://github.com/user-attachments/assets/bf25a789-936c-4b6e-9b2b-27042d1f5d5b" /> $${\color{gray}INTRO}$$
+## <p align="center"> <img width="20" height="20" alt="tumblr_e4ece501a8af46f917f15b31407f9fb8_da475fa4_75" src="https://github.com/user-attachments/assets/bf25a789-936c-4b6e-9b2b-27042d1f5d5b" /> $${\color{gray}INTRO}$$
 
 
 <p align="center"> OLLI / PULMU
@@ -20,6 +20,7 @@
 
 i have diagnosed ADHD and depression so bare with me guys
 
+my current _main_ interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <ins>Persona</ins>
 <p align="center"> this is still a huge wip
 
 <p align="center"> im too lazy to do shit to this :)), have a great day yall
@@ -28,7 +29,7 @@ i do all this shit on my phone + ass of a laptop which runs on fumes <img width=
 
 theres way more stuff in my straw1 + more abt my interests and shit ^v^
 
-# <p align="center"> <img width="20" height="20" alt="tumblr_2023fffcc35d99c41b988de930f9b185_175c14c6_75" src="https://github.com/user-attachments/assets/2b86aea8-91b6-409e-863e-6bb497294ed9" /> $${\color{gray}LINKS}$$
+## <p align="center"> <img width="20" height="20" alt="tumblr_2023fffcc35d99c41b988de930f9b185_175c14c6_75" src="https://github.com/user-attachments/assets/2b86aea8-91b6-409e-863e-6bb497294ed9" /> $${\color{gray}LINKS}$$
 
 
 <p align="center"
