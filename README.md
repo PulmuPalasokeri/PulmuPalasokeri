@@ -18,7 +18,7 @@
  
 [ata](https://pulmumoo.atabook.org/) ㅤㅤ [straw1](https://palasokeri.straw.page/) ㅤㅤ [straw2](https://0llipulm.straw.page)
 
-theres way more stuff in my straw1 + more abt my interests and shit ^v^
+<p align="center"> <sub> theres alot more stuff abt my interests and other shit in straw1 ^v^ </sub>
 
 
 ##
