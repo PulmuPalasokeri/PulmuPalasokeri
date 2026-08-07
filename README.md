@@ -22,7 +22,8 @@
 
 i have diagnosed ADHD and depression so bear with me guys, I CANT SPELL FOR FUCJKS "bare with me" IM SOBBING 
 
-my current _main_ interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <ins>Persona</ins>
+my current _main_ interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <ins>Persona</ins> <img width="57" height="20" alt="167be314" src="https://github.com/user-attachments/assets/4146a129-b558-4d4d-8518-f693eaa89d27" />
+
 <p align="center"> this is still a huge wip
 
 <p align="center"> im too lazy to do shit to this :)), have a great day yall
