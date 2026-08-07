@@ -18,7 +18,9 @@
 <p align="center"> HE / THEY
 <p align="center"> 16
 
-<p align="center"> hello this is still a huge wip
+i have diagnosed ADHD and depression so bare with me guys
+
+<p align="center"> this is still a huge wip
 
 <p align="center"> im too lazy to do shit to this :)), have a great day yall
 
