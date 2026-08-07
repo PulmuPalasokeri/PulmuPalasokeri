@@ -14,25 +14,14 @@
 <p align="center"> <img width="57" height="20" alt="167be314" src="https://github.com/user-attachments/assets/4146a129-b558-4d4d-8518-f693eaa89d27" />
 
 
-## </details>
-<div align="center">  
-<details>
-<summary><img width="20" height="20" alt="tumblr_2023fffcc35d99c41b988de930f9b185_175c14c6_75 (1)" src="https://github.com/user-attachments/assets/26818fae-dbe5-4489-8813-bc8f94734b90" />
-${\textsf{\color{gray}LINKS}}$</summary>
-
-ㅤ
-
- [ata](https://pulmumoo.atabook.org/) ㅤㅤ [straw1](https://palasokeri.straw.page/) ㅤㅤ [straw2](https://0llipulm.straw.page)
-
-ㅤ
+<p align="center"
+ 
+[ata](https://pulmumoo.atabook.org/) ㅤㅤ [straw1](https://palasokeri.straw.page/) ㅤㅤ [straw2](https://0llipulm.straw.page)
 
 theres way more stuff in my straw1 + more abt my interests and shit ^v^
 
-</details>
 
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r7o65e23mul6pmv5rpqlw7rjoi&cover_image=false&theme=default&show_offline=true&background_color=gray&interchange=true&profanity=false&hide_remaster=true&bar_color=b3b3b3&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+##
 
 
 <p align="center"> <img width="1111" height="74" alt="0z3da4" src="https://github.com/user-attachments/assets/63dbc36a-252c-4e33-94d8-c8398bf415b4" />
