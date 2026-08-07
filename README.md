@@ -17,10 +17,12 @@
 
 
 <p align="center"> OLLI / PULMU
+
 <p align="center"> HE / THEY
+
 <p align="center"> 16
 
-i have diagnosed ADHD and depression so bear with me guys, I CANT SPELL FOR FUCJKS "bare with me" IM SOBBING 
+i have diagnosed *ADHD* and *depression* so bear with me guys, I CANT SPELL FOR FUCJKS "bare with me" IM SOBBING 
 
 my current _main_ interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <ins>Persona</ins> <img width="57" height="20" alt="167be314" src="https://github.com/user-attachments/assets/4146a129-b558-4d4d-8518-f693eaa89d27" />
 
@@ -42,6 +44,10 @@ ${\textsf{\color{gray}LINKS}}$</summary>
  [ata](https://pulmumoo.atabook.org/) - [straw1](https://palasokeri.straw.page/) - [straw2](https://0llipulm.straw.page)
 
 </details>
+
+##
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r7o65e23mul6pmv5rpqlw7rjoi&cover_image=false&theme=default&show_offline=true&background_color=gray&interchange=true&profanity=false&hide_remaster=true&bar_color=b3b3b3&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 
 ## 
