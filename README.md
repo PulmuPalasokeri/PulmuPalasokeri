@@ -35,7 +35,8 @@ theres way more stuff in my straw1 + more abt my interests and shit ^v^
 ## </details>
 <div align="center">  
 <details>
-<summary>${\textsf{\color{gray}LINKS}}$</summary>
+<summary><img width="20" height="20" alt="tumblr_2023fffcc35d99c41b988de930f9b185_175c14c6_75 (1)" src="https://github.com/user-attachments/assets/26818fae-dbe5-4489-8813-bc8f94734b90" />
+${\textsf{\color{gray}LINKS}}$</summary>
 
  [ata](https://pulmumoo.atabook.org/) - [straw1](https://palasokeri.straw.page/) - [straw2](https://0llipulm.straw.page)
 
