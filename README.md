@@ -2,6 +2,8 @@
 
 <p align="center"> <img width="1111" height="74" alt="am2tyu" src="https://github.com/user-attachments/assets/ed03c9e0-f7b9-41a3-ab61-6837129e60ab" />
 
+## 
+
 
 <p align="center"> 
 <img width="27" height="27" alt="tumblr_2c1c7488d095550af8e46553888c8d28_4d8db0bb_75" src="https://github.com/user-attachments/assets/32cd9d12-9c20-47e6-8018-be18fa57dad0" />
@@ -25,17 +27,22 @@ my current _main_ interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <in
 
 <p align="center"> im too lazy to do shit to this :)), have a great day yall
 
-i do all this shit on my phone + ass of a laptop which runs on fumes <img width="20" height="20" alt="tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75" src="https://github.com/user-attachments/assets/79ef92fd-c795-44ab-8f25-f3209634a7ea" />
+i do all this shit on my phone + ass of a laptop which runs on fumes
 
 theres way more stuff in my straw1 + more abt my interests and shit ^v^
 
-## <p align="center"> <img width="20" height="20" alt="tumblr_2023fffcc35d99c41b988de930f9b185_175c14c6_75" src="https://github.com/user-attachments/assets/2b86aea8-91b6-409e-863e-6bb497294ed9" /> $${\color{gray}LINKS}$$
 
+## </details>
+<div align="center">  
+<details>
+<summary>${\textsf{\color{gray}LINKS}}$</summary>
 
-<p align="center"
- 
  [ata](https://pulmumoo.atabook.org/) - [straw1](https://palasokeri.straw.page/) - [straw2](https://0llipulm.straw.page)
 
+</details>
+
+
+## 
 
 <p align="center"> <img width="1111" height="74" alt="0z3da4" src="https://github.com/user-attachments/assets/63dbc36a-252c-4e33-94d8-c8398bf415b4" />
 
