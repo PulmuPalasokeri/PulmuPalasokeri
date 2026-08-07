@@ -2,8 +2,6 @@
 
 <p align="center"> <img width="1111" height="74" alt="am2tyu" src="https://github.com/user-attachments/assets/ed03c9e0-f7b9-41a3-ab61-6837129e60ab" />
 
-## 
-
 
 <p align="center"> 
 <img width="27" height="27" alt="tumblr_2c1c7488d095550af8e46553888c8d28_4d8db0bb_75" src="https://github.com/user-attachments/assets/32cd9d12-9c20-47e6-8018-be18fa57dad0" />
@@ -13,20 +11,7 @@
 <p align="center"> <img width="150" height="150" alt="prompto" src="https://github.com/user-attachments/assets/ecebad6c-d702-4a69-904f-2d28d2f65e2e" />
 
 
-## <p align="center"> <img width="20" height="20" alt="tumblr_e4ece501a8af46f917f15b31407f9fb8_da475fa4_75" src="https://github.com/user-attachments/assets/bf25a789-936c-4b6e-9b2b-27042d1f5d5b" /> $${\color{gray}INTRO}$$
-
-
-<p align="center"> OLLI / PULMU
-<p align="center"> HE / THEY
-<p align="center"> 16
-<p align="center"> I struggle with diagnosed ADHD and depression so bear with me guys
-<p align="center"> my current main interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <ins>Persona</ins> <img width="57" height="20" alt="167be314" src="https://github.com/user-attachments/assets/4146a129-b558-4d4d-8518-f693eaa89d27" />
-<p align="center"> this is still a huge wip
-<p align="center"> im too lazy to do shit to this :)), have a great day yall
-
-i do all this shit on my phone + ass of a laptop which runs on fumes
-
-theres way more stuff in my straw1 + more abt my interests and shit ^v^
+<p align="center"> <img width="57" height="20" alt="167be314" src="https://github.com/user-attachments/assets/4146a129-b558-4d4d-8518-f693eaa89d27" />
 
 
 ## </details>
@@ -41,15 +26,14 @@ ${\textsf{\color{gray}LINKS}}$</summary>
 
 ㅤ
 
+theres way more stuff in my straw1 + more abt my interests and shit ^v^
+
 </details>
 
 
-##
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r7o65e23mul6pmv5rpqlw7rjoi&cover_image=false&theme=default&show_offline=true&background_color=gray&interchange=true&profanity=false&hide_remaster=true&bar_color=b3b3b3&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-
-## 
 
 <p align="center"> <img width="1111" height="74" alt="0z3da4" src="https://github.com/user-attachments/assets/63dbc36a-252c-4e33-94d8-c8398bf415b4" />
 
