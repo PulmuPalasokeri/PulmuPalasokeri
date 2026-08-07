@@ -18,7 +18,7 @@
 <p align="center"> HE / THEY
 <p align="center"> 16
 
-i have diagnosed ADHD and depression so bare with me guys
+i have diagnosed ADHD and depression so bear with me guys, I CANT SPELL FOR FUCJKS "bare with me" IM SOBBING 
 
 my current _main_ interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <ins>Persona</ins>
 <p align="center"> this is still a huge wip
