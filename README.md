@@ -22,9 +22,9 @@
 
 <p align="center"> 16
 
-i have diagnosed *ADHD* and *depression* so bear with me guys, I CANT SPELL FOR FUCJKS "bare with me" IM SOBBING 
+<p align="center"> i have diagnosed *ADHD* and *depression* so bear with me guys
 
-my current _main_ interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <ins>Persona</ins> <img width="57" height="20" alt="167be314" src="https://github.com/user-attachments/assets/4146a129-b558-4d4d-8518-f693eaa89d27" />
+<p align="center"> my current _main_ interests are <ins>Final Fantasy</ins> , <ins>TloZ</ins> , <ins>Persona</ins> <img width="57" height="20" alt="167be314" src="https://github.com/user-attachments/assets/4146a129-b558-4d4d-8518-f693eaa89d27" />
 
 <p align="center"> this is still a huge wip
 
@@ -41,9 +41,14 @@ theres way more stuff in my straw1 + more abt my interests and shit ^v^
 <summary><img width="20" height="20" alt="tumblr_2023fffcc35d99c41b988de930f9b185_175c14c6_75 (1)" src="https://github.com/user-attachments/assets/26818fae-dbe5-4489-8813-bc8f94734b90" />
 ${\textsf{\color{gray}LINKS}}$</summary>
 
- [ata](https://pulmumoo.atabook.org/) - [straw1](https://palasokeri.straw.page/) - [straw2](https://0llipulm.straw.page)
+ㅤ
+
+ [ata](https://pulmumoo.atabook.org/) ㅤㅤ [straw1](https://palasokeri.straw.page/) ㅤㅤ [straw2](https://0llipulm.straw.page)
+
+ㅤ
 
 </details>
+
 
 ##
 
