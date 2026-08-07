@@ -8,7 +8,7 @@
 
 <p align="center"> 
 <img width="27" height="27" alt="tumblr_2c1c7488d095550af8e46553888c8d28_4d8db0bb_75" src="https://github.com/user-attachments/assets/32cd9d12-9c20-47e6-8018-be18fa57dad0" />
-<img src="https://komarev.com/ghpvc/?username=PulmuPalasokeri&style=round&color=gray&label=pictures" alt="profile view counter" width="110">
+<img src="https://komarev.com/ghpvc/?username=PulmuPalasokeri&style=round&color=gray&label=ʚpictures" alt="profile view counter" width="110">
 
 
 <p align="center"> <img width="150" height="150" alt="prompto" src="https://github.com/user-attachments/assets/ecebad6c-d702-4a69-904f-2d28d2f65e2e" />
