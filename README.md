@@ -23,7 +23,7 @@
 
 <p align="center"> <sub> theres alot more stuff abt my interests and other shit in straw1 ^v^ </sub>
 
-<p align="center"> <img width="80" height="15" alt="flagfinland" src="https://github.com/user-attachments/assets/5ae70721-5e3c-4040-8735-4f93a8af5aae" />
+<p align="center"> <img width=90" height="15" alt="flagfinland" src="https://github.com/user-attachments/assets/5ae70721-5e3c-4040-8735-4f93a8af5aae" />
 
 ##
 
