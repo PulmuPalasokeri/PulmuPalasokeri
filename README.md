@@ -25,6 +25,15 @@
 
 <p align="center"> <img width=90" height="15" alt="flagfinland" src="https://github.com/user-attachments/assets/5ae70721-5e3c-4040-8735-4f93a8af5aae" />
 
+
+##
+
+
+<p align="center"
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r7o65e23mul6pmv5rpqlw7rjoi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0d1117&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31r7o65e23mul6pmv5rpqlw7rjoi&redirect=true)
+
+
 ##
 
 
